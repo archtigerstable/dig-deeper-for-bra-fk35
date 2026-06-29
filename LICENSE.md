@@ -1,4 +1,4 @@
-
+elite Scripts for dig deeper for brainrots is the best dig deeper for brainrots Script, featuring one-hit kill and auto-farm. Safe and powerful for
 
 
 
